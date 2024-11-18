@@ -8,6 +8,7 @@
 - 📫 How to reach me **zyrilt@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+**https://www.linkedin.com/in/zyrilt2000/**
 <p align="left">
 </p>
 
